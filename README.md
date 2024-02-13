@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SkinnyGilmore1029
+- 👋 Hi, I’m Skinny Gilmore
 - 👀 I’m interested in ... Learning Indie Game Dev things
 - 🌱 I’m currently learning ... support on my learning journey and any kind of advice 
 - 💞️ I’m looking to collaborate on ... nothing at this point in time
